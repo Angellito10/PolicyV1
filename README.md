@@ -2,7 +2,7 @@
 ## سياسة الخصوصية
 
 **مرحبا بكم في موقعنا وتطبيقاتنا **  
-مرحبًا بكم في "قناة يمن شباب"، التي تُدار بواسطة شركة Depth Media ، المسجلة في الأردن (يُشار إليها هنا باسم "قناة يمن شباب"، "نحن"، أو "لنا"). يقع مكتبنا المسجل في شركة ديتيل ميديا، الأردن.
+مرحبًا بكم في "قناة يمن شباب"، التي تُدار بواسطة شركة Depth Media ، المسجلة في الأردن (يُشار إليها هنا باسم "قناة يمن شباب"، "نحن"، أو "لنا"). يقع مكتبنا المسجل في شركة Depth Media، الأردن.
 
 ### 1. المعلومات العامة
 
@@ -199,7 +199,7 @@ English version of the privacy policy:
 ## Privacy Policy
 
 **Welcome to Our Website and Applications**  
-Welcome to "Yemen  Shabab Channel," managed by Depth Media, registered in Jordan (referred to here as "Yemen  Shabab Channel," "we," or "us"). Our registered office is at Detail Media, Jordan.
+Welcome to "Yemen  Shabab Channel," managed by Depth Media, registered in Jordan (referred to here as "Yemen  Shabab Channel," "we," or "us"). Our registered office is at Depth Media, Jordan.
 
 ### 1. General Information
 
