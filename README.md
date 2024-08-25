@@ -166,7 +166,7 @@
 
 لأي استفسارات تتعلق بهذه السياسة أو كيفية تعاملنا مع بياناتك الشخصية، يمكنك الاتصال بنا عبر القنوات التالية.
 
-- **مسؤول حماية البيانات:** معاذ نصر
+- **مسؤول حماية البيانات:** م. معاذ نصر
 - **البريد الإلكتروني:** [muath@yemenshabab.net]
 - **قسم التسويق والعلاقات العامة:** [marketing@yemenshabab.net]
 - **قسم الشكاوى القانونية:** [legals@yemenshabab.net]
@@ -371,7 +371,7 @@ We may use your data for direct marketing and advertising, and you can opt out a
 
 For any inquiries regarding this policy or how we handle your personal data, please contact us via the following channels.
 
-- **Data Protection Officer:** Muath Nasr
+- **Data Protection Officer:** Eng. Muath Nasr
 - **Email:** [muath@yemenshabab.net]
 - **Marketing and Public Relations Department:** [marketing@yemenshabab.net]
 - **Legal Complaints Department:** [legals@yemenshabab.net]
