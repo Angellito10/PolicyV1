@@ -2,15 +2,15 @@
 ## سياسة الخصوصية
 
 **مرحبا بكم في موقعنا وتطبيقاتنا **  
-مرحبًا بكم في "قناة يمن شباب"، التي تُدار بواسطة شركة Depth Media ، المسجلة في الأردن (يُشار إليها هنا باسم "قناة يمن شباب"، "نحن"، أو "لنا"). يقع مكتبنا المسجل في شركة Depth Media، الأردن.
+مرحبًا بكم في "قناة اليمن شباب"، التي تُدار بواسطة شركة ديتيل ميديا، المسجلة في الأردن (يُشار إليها هنا باسم "قناة اليمن شباب"، "نحن"، أو "لنا"). يقع مكتبنا المسجل في شركة ديتيل ميديا، الأردن.
 
 ### 1. المعلومات العامة
 
 توضح هذه السياسة كيفية جمعنا واستخدامنا وحمايتنا لبياناتك الشخصية التي نقوم بمعالجتها. كما تحدد حقوقك بشأن بياناتك الشخصية وتوضح كيفية الاتصال بنا إذا كان لديك أي أسئلة أو استفسارات. نقوم بتحديث هذه السياسة بانتظام لضمان الالتزام بالقوانين والممارسات الفضلى.
 
-- **التحكم في البيانات:** قناة يمن شباب (يُشار إليها باسم "قناة يمن شباب" أو "نحن") هي المتحكم في البيانات المسؤولة عن معالجة بياناتك الشخصية. يمكنك معرفة المزيد عن مسؤوليات حماية البيانات من خلال الاتصال بنا.
+- **التحكم في البيانات:** قناة اليمن شباب (يُشار إليها باسم "قناة اليمن شباب" أو "نحن") هي المتحكم في البيانات المسؤولة عن معالجة بياناتك الشخصية. يمكنك معرفة المزيد عن مسؤوليات حماية البيانات من خلال الاتصال بنا.
 - **التحديثات:** نظرًا لتطور قوانين وممارسات الخصوصية، قد نقوم بتحديث هذه السياسة بشكل دوري. نوصي بمراجعتها بانتظام للبقاء على اطلاع بأي تغييرات.
-- **النطاق:** تنطبق هذه السياسة على جميع الأفراد الذين يتفاعلون مع قناة يمن شباب، بما في ذلك العملاء، زوار الموقع، مستخدمي التطبيقات، والمستخدمين الآخرين ("أنت"، "لك").
+- **النطاق:** تنطبق هذه السياسة على جميع الأفراد الذين يتفاعلون مع قناة اليمن شباب، بما في ذلك العملاء، زوار الموقع، مستخدمي التطبيقات، والمستخدمين الآخرين ("أنت"، "لك").
 
 ### 2. جمع بياناتك الشخصية
 
@@ -108,7 +108,7 @@
 - **عدم انتهاك الحقوق:** يجب ألا ينتهك المحتوى الخاص بك أي حقوق لأطراف ثالثة في أي مكان في العالم.
 - **الموافقة المطلوبة:** الحصول على الموافقة الصريحة من الأفراد قبل تضمين صورتهم أو صوتهم في المحتوى الخاص بك. لا تقم بتحميل محتوى يحتوي على أشخاص دون موافقتهم.
 - **المحتوى المحظور:** يجب ألا يحتوي المحتوى الخاص بك على مواد تعتبر تهديدية، تشهيرية، فاحشة، خليعة، عدوانية، إباحية، معادية، مثيرة للكراهية، تمييزية، تهديدية، فضائحية، تحريضية، أو منتهكة للثقة. كما يجب ألا يحتوي على أي ضرر فني (مثل الفيروسات، البرمجيات الخبيثة).
-- **ترخيص الاستخدام:** من خلال تحميل المحتوى الخاص بك على موقعنا، تمنح قناة يمن شباب وموظفيها، بالإضافة إلى مستخدمي الموقع، رخصة غير قابلة للإلغاء وغير حصرية (غير محدودة بوقت) لعرض واستخدام المحتوى الخاص بك دون قيود، بما في ذلك للأغراض التجارية.
+- **ترخيص الاستخدام:** من خلال تحميل المحتوى الخاص بك على موقعنا، تمنح قناة اليمن شباب وموظفيها، بالإضافة إلى مستخدمي الموقع، رخصة غير قابلة للإلغاء وغير حصرية (غير محدودة بوقت) لعرض واستخدام المحتوى الخاص بك دون قيود، بما في ذلك للأغراض التجارية.
 - **إزالة المحتوى:** نحن لا نضمن بقاء المحتوى الخاص بك على الموقع لفترة زمنية معينة وقد نقوم بإزالته كما نراه مناسبًا. نحثك على الاحتفاظ بنسخ احتياطية لأي محتوى ترسله إلينا.
 - **طلبات إزالة المحتوى:** إذا كنت ترغب في طلب إزالة أي محتوى، يرجى إرسال بريد إلكتروني إلينا على [marketing@yemenshabab.net] مع تفاصيل المحتوى (المشار إليه باسم "المحتوى المُبلغ عنه"). سنبذل قصارى جهدنا للاستجابة لك بسرعة، ولكن لا يمكننا ضمان إزالة المحتوى المُبلغ عنه من الموقع أو وسائل الإعلام الأخرى.
 
@@ -166,7 +166,7 @@
 
 لأي استفسارات تتعلق بهذه السياسة أو كيفية تعاملنا مع بياناتك الشخصية، يمكنك الاتصال بنا عبر القنوات التالية.
 
-- **مسؤول حماية البيانات:** م. معاذ نصر
+- **مسؤول حماية البيانات:** معاذ نصر
 - **البريد الإلكتروني:** [muath@yemenshabab.net]
 - **قسم التسويق والعلاقات العامة:** [marketing@yemenshabab.net]
 - **قسم الشكاوى القانونية:** [legals@yemenshabab.net]
@@ -189,6 +189,13 @@
 - **GDPR:** اللائحة العامة لحماية البيانات.
 - **البيانات الشخصية:** المعلومات التي يمكن استخدامها لتحديد الأفراد بشكل مباشر أو غير مباشر.
 
+
+**22. القانون المعمول به والاختصاص القضائي**
+
+تخضع هذه الشروط والأحكام لقوانين المملكة الأردنية الهاشمية وتُفسر وفقًا لها. وتخضع النزاعات الناشئة فيما يتعلق بهذه الشروط والأحكام أو أي استخدام للخدمة للاختصاص القضائي الحصري للمحاكم الأردنية. يجب رفع أي دعوى تتعلق بهذه الشروط والأحكام أو أي استخدام للخدمة خلال سنة واحدة من تاريخ نشوء هذه الدعوى أو سببها.
+
+إذا تبين أن أي بند من هذه الشروط والأحكام غير قانوني أو باطل أو غير قابل للتنفيذ وفقًا لقوانين أي دولة أو ولاية قضائية يُفترض أن تكون هذه الشروط والأحكام سارية فيها، فسيُعتبر هذا البند محذوفًا من هذه الشروط إلى الحد الذي يكون فيه هذا البند غير قانوني أو باطل أو غير قابل للتنفيذ. ستظل باقي الشروط والأحكام سارية المفعول وملزمة وقابلة للتنفيذ.
+
 إذا كان لديك أي أسئلة إضافية أو تحتاج إلى تفاصيل أكثر حول أي من الأقسام المذكورة أعلاه، يرجى عدم التردد في الاتصال بنا عبر المعلومات المقدمة.
 
 ---
@@ -199,15 +206,15 @@ English version of the privacy policy:
 ## Privacy Policy
 
 **Welcome to Our Website and Applications**  
-Welcome to "Yemen  Shabab Channel," managed by Depth Media, registered in Jordan (referred to here as "Yemen  Shabab Channel," "we," or "us"). Our registered office is at Depth Media, Jordan.
+Welcome to "Yemen Youth Channel," managed by Detail Media, registered in Jordan (referred to here as "Yemen Youth Channel," "we," or "us"). Our registered office is at Detail Media, Jordan.
 
 ### 1. General Information
 
 This policy explains how we collect, use, and protect your personal data that we process. It also outlines your rights regarding your personal data and how to contact us if you have any questions or concerns. We update this policy regularly to ensure compliance with laws and best practices.
 
-- **Data Controller:** Yemen  Shabab Channel (referred to as "Yemen  Shabab Channel" or "we") is the data controller responsible for processing your personal data. You can learn more about data protection responsibilities by contacting us.
+- **Data Controller:** Yemen Youth Channel (referred to as "Yemen Youth Channel" or "we") is the data controller responsible for processing your personal data. You can learn more about data protection responsibilities by contacting us.
 - **Updates:** As privacy laws and practices evolve, we may update this policy periodically. We recommend reviewing it regularly to stay informed of any changes.
-- **Scope:** This policy applies to all individuals interacting with Yemen  Shabab Channel, including customers, website visitors, app users, and other users ("you," "your").
+- **Scope:** This policy applies to all individuals interacting with Yemen Youth Channel, including customers, website visitors, app users, and other users ("you," "your").
 
 ### 2. Collection of Your Personal Data
 
@@ -306,7 +313,7 @@ When using our site, please adhere to the following content guidelines:
 - **No Rights Violation:** Your content must not infringe on the rights of any third parties anywhere in the world.
 - **Required Consent:** Obtain explicit consent from individuals before including their images or voices in your content. Do not upload content featuring individuals without their consent.
 - **Prohibited Content:** Your content must not include materials that are threatening, defamatory, obscene, indecent, aggressive, pornographic, hateful, discriminatory, intimidating, scandalous, inciting, or in breach of trust. It must also not cause technical damage (e.g., viruses, malware).
-- **Usage License:** By uploading your content to our site, you grant Yemen  Shabab Channel and its employees, as well as site users, a non-revocable, non-exclusive (time-unlimited) license to display and use your content without restriction, including for commercial purposes.
+- **Usage License:** By uploading your content to our site, you grant Yemen Youth Channel and its employees, as well as site users, a non-revocable, non-exclusive (time-unlimited) license to display and use your content without restriction, including for commercial purposes.
 - **Content Removal:** We do not guarantee the content will remain on the site for any specific period and may remove it as we see fit. We encourage you to keep backup copies of any content you send us.
 - **Content Removal Requests:** If you wish to request the removal of any content, please email us at [marketing@yemenshabab.net] with details of the content (referred to as "Reported Content"). We will make every effort to respond promptly and to cease the use of the reported content. However, we cannot guarantee that we can remove reported content if it has been published on the site or other media.
 
@@ -364,7 +371,7 @@ We may use your data for direct marketing and advertising, and you can opt out a
 
 For any inquiries regarding this policy or how we handle your personal data, please contact us via the following channels.
 
-- **Data Protection Officer:** Eng. Muath Nasr
+- **Data Protection Officer:** Muath Nasr
 - **Email:** [muath@yemenshabab.net]
 - **Marketing and Public Relations Department:** [marketing@yemenshabab.net]
 - **Legal Complaints Department:** [legals@yemenshabab.net]
@@ -386,6 +393,12 @@ If you have any inquiries or complaints regarding the use of your personal data,
 - **Data Protection Authority:** The body responsible for overseeing compliance with data protection laws.
 - **GDPR:** General Data Protection Regulation.
 - **Personal Data:** Information that can be used to identify individuals directly or indirectly.
+
+**22. Governing Law and Jurisdiction**
+
+These terms and conditions are governed by and construed in accordance with the laws of the Hashemite Kingdom of Jordan. Any disputes arising in connection with these terms and conditions or any use of the service are subject to the exclusive jurisdiction of the Jordanian courts. Any cause of action you may have related to these terms and conditions or any use of the service must be brought within one year from the date on which the claim or cause of action arises.
+
+If any provision of these terms and conditions is found to be unlawful, void, or unenforceable under the laws of any country or jurisdiction where these terms and conditions are intended to be effective, then that provision will be deemed deleted to the extent and within the jurisdiction in which it is unlawful, void, or unenforceable. The remaining terms and conditions will continue in full force and effect and remain binding and enforceable.
 
 If you have any additional questions or need further details about any of the sections above, please do not hesitate to contact us using the provided information.
 
